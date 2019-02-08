@@ -42,6 +42,7 @@ We expect volunteers to avoid sharing their personal political preferences. We e
 ##### The Republican Primary
 
 #### Chicago Mayoral Race
+* [Election scheduled for February 26, 2019. If necessary, a run-off election may be held April 2, 2019.]
 
 ##### Candidate Websites
 * [Gery Chico Campaign Website](https://chicoformayor.com/)
